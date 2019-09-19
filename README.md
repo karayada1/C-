@@ -1,0 +1,2 @@
+# C-
+KENDİNİ GELİŞTİREN YAZILIMCI
